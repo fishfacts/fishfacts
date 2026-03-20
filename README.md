@@ -5,3 +5,5 @@ i am aware of when characters/creators are horrible, and never do i justify/defe
 but if that makes you uncomfortable it's okay, feel free to hide me!
 
 i won't attack you for doing such a thing unlike how some people do on this game lol
+
+current big interests are golden kamuy gachiakuta and 8:11 :-)
