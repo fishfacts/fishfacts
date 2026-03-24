@@ -1,9 +1,7 @@
-all media i am into or a fan of — either be for design or characters — i consume critically. 
+<p align="center">hi i'm yorkie and i like golden kamuy and 8:11 and a lot of other things lalala<p/>
 
-i am aware of when characters/creators are horrible, and never do i justify/defend them!
+<p align="center">all media i am into i consume critically and rarely do i ever condone the actions of creators/characters but if that makes you comfortable then feel free to hide/block me ^_^ i am not that much of a social person but feel free to come up and talk if you want i won't bite your fingers off maybe. just don't be weird to me that's all i ask... <p/>
 
-but if that makes you uncomfortable it's okay, feel free to hide me!
+<p align="center">i hide freely so if you're hidden it's probably because you're. idk a weirdo or a proshipper i guess i don't really want those type of people interacting with me most of the time i guess ToT i don't care what you're into just don't shove it into my face >_><p/>
 
-i won't attack you for doing such a thing unlike how some people do on this game lol
 
-current big interests are golden kamuy gachiakuta and 8:11 :-)
